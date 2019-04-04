@@ -1,1 +1,1 @@
-# Research files for Apulu Ndotimi
+# Research
